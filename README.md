@@ -13,7 +13,7 @@ In my past roles:
 - As a **Sales Executive at ICICI Lombard**, I gained strong communication and client-handling skills, dealing with complex insurance claims,customer escalation and queries.
 - As a **Trainee Chemist at Pidilite Industries**, I learned the importance of precision, analysis, and documentation in a production environment.
 
- I took approximately 3-years **career break for marriage, relocation, and parenting**, and now I am **fully committed to restarting my career in data analysis**.
+ I took approximately 3-years **career break for marriage, relocation, and parenting**, and now I am **fully committed to restart my career in data analysis**.
 
 ---
 
